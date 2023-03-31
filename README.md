@@ -18,7 +18,7 @@ I do have pickup and dropoff times on my calendar where I'm usually driving to a
 - Video games 🎮 and board games 🎲
 
 **Favorite snacks:**  
-Believe it or not, I'm not a big food person. But my daughter's entire existance is just distrating herself until her next meal. Just the other day she said "I'm already hungry for breakfast tomorrow". She's 5, for reference.
+Believe it or not, I'm not a big food person. But my daughter's entire existence is just distracting herself until her next meal. Just the other day she said "I'm already hungry for breakfast tomorrow". She's 5, for reference.
 
 **I am grateful for:** My family! They're my muse.
 
